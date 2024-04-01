@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I'm not good enough in english but you can speak with me. I don't bite.
+I'm not great at English, but you can talk to me. I don't bite.
