@@ -1,3 +1,2 @@
 ### Hi there (^_^)
-
-I'm not great at English, but you can talk to me. I don't bite.
+Student in Epita, Rust learner and Clibing Lover
