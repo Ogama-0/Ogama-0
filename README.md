@@ -1,2 +1,2 @@
 ### Hi there (^_^)
-Student in Epita, Rust learner and Clibing Lover
+Student in Epita, Rust learner and climbing Lover
